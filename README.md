@@ -11,4 +11,6 @@ Meu nome é Nicolas, SOLDADO DE CRISTO
 - 00001103784961sp@al.educacao.sp.gov.br
 - 
 - @Nicolas
-- 
+
+![]()
+  ![scared-dog](https://github.com/Nickta1/Nickta1/assets/170728850/d914f3a1-d0e8-4dfd-8f84-7ac91ea98898)
